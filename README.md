@@ -17,3 +17,10 @@ _de LIA_
  * Josajani
  * Monse
  * Jocelyn
+
+#### Mis maestros favoritos
+ * Gumecindo
+ * Felix
+ * Ana Luisa
+ * Quintos
+ * Ocelotl
