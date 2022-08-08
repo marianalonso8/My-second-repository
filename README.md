@@ -9,3 +9,11 @@ _de LIA_
     * Brayan
     * Luis
     * Josue 
+
+#### Mis mejores amigas 
+_de LIA_
+* F9
+ * Nayeli
+ * Josajani
+ * Monse
+ * Jocelyn
